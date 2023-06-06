@@ -1,1 +1,1 @@
-Hey, Im Stella and Im all about Tech and solution
+Hey, I'm Stella and I'm all about Tech and solutions. I'm also open to collaborations.
